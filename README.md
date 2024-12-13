@@ -19,8 +19,6 @@
 📷 [instagram][stig] **|** 
 👔 [linkedin][linkedin]
 
-### 🪴🪴🪴🪴🪴🪴🪴🪴
-
 [website]: https://kevbk.com
 [spacetype]: https://spacetypeco.com
 [stig]: https://instagram.com/spacetypeco

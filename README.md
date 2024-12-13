@@ -3,13 +3,7 @@
 ✨ principal engineering lead at [Nava PBC](https://navapbc.com)                               
 🎨 designer, studio manager, and engineer-for-contract at [Space Type](https://spacetypeco.com)
 
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
-\~\~\~\~\~\~\~
+\~\~\~\~\~🪴\~\~\~\~\~🪴\~\~\~\~\~🪴\~\~\~\~\~🪴\~\~\~\~\~🪴\~\~\~\~\~🪴\~\~\~\~\~
 
 💬 Ask me about teaching, human-centered documentation, and empowering communities to build quickly and confidently 💪      
 😄 Pronouns: he/him/his

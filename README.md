@@ -16,4 +16,4 @@
 [website]: https://kevbk.com
 [spacetype]: https://spacetypeco.com
 [stig]: https://instagram.com/spacetypeco
-[linkedin]: https://linkedin.com/kyeah
+[linkedin]: https://linkedin.com/in/kyeah
